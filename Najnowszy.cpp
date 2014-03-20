@@ -1,1 +1,2 @@
-Bardzo lubie KNI
+Bardzo lubie KNI i MiNI
+
